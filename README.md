@@ -1,0 +1,1 @@
+# jewelery_store
